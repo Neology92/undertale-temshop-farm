@@ -58,6 +58,9 @@ Dis only work if game is runnin and setup like temmie said!! If anything weird h
 
 temmie believin in u!!! u can do it!!! buy dem flakes, sell dem flakes, become rich tem!!! 🐱💸
 
+![Screenshot 2025-04-13 232514](https://github.com/user-attachments/assets/6e745d79-234e-4ff7-a46f-b67837fd3284)
+
+
 ---
 
 README.md generated wit da help of ChatGPT!! (temmie got help from da smart AI hooman!!) 🤖💡
